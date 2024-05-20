@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on applications or analytic projects to solve meaningful problems.
 - 📫 How to reach me @melapreen
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I would be an architect or fashion designer in another life.
+- ⚡ Fun fact: In a parallel universe would be an architect or fashion designer.
 
 <!---
 cybersorceressmela/cybersorceressmela is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
